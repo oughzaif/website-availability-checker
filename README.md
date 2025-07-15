@@ -41,7 +41,7 @@ Author
 
 Mohamad Oughzaif — Ethical Hacker & Cybersecurity Enthusiast
 GitHub: [https://github.com/oughzaif](https://github.com/oughzaif)
-LinkedIn: [https://www.linkedin.com/in/mohamad-oughzaif/](https://www.linkedin.com/in/mohamad-oughzaif-a64)
+LinkedIn: [https://www.linkedin.com/in/mohamad-oughzaif/](https://www.linkedin.com/in/mohamad-oughzaif-a6406a246/)
 
 ---
 
